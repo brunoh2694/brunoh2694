@@ -1,7 +1,11 @@
+Engenering student from Brasil
+I'm interested in spread knowledge, now I'm learning
+python and VBA.
+
 -Instagram: @brunoh2694
 -Email: bruno260694@gmail.com
 
-I'm learning python and VBA.
+
 -
 
 <!---
